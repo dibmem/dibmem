@@ -13,7 +13,7 @@
 <p>my interests, ranked by how much i think about them right now;</p>
 <ul> <li><p>art struggles by <a href="https://x.com/XRAY32P/"><strong>xray32p on twitter</strong></a>
 </p></li>
-  <li><p>homestuck</p></li>
+  <li><p>homestuck/friendsim</p></li>
 <li><p>invader zim</p></li>
 <li><p>johnny the homicidal maniac</p>
 <li><p>splatoon</p></li>
