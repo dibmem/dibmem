@@ -10,7 +10,7 @@
 <h2>my interests</h2>
 
 ![GIF image](https://github.com/user-attachments/assets/d4b61b59-bc44-47b0-8713-d4d6af19d20f)
-<p>my interests, ranked by how much i think about them right now;</p>
+<p>my interests, ranked in no particular order</p>
 <ul> <li><p>art struggles by <a href="https://x.com/XRAY32P/"><strong>xray32p on twitter</strong></a>
 </p></li>
   <li><p>homestuck/friendsim</p></li>
