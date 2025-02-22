@@ -23,7 +23,7 @@
 </ul>
 <h2>DNI criteria</h2>
 <img src="https://github.com/user-attachments/assets/78f5d868-38c9-490b-a1e0-abaedac7ec57" width=80>
-<p>i'm really uncomfortable with your map pride or your zoophilia or your necro fetish. if any of those apply to you please distance yourself from me and get help. other than that i usually block freely; if i dont like you i'll block you. profic and proship are also big nonos</p>
+<p>i'm really uncomfortable with your map pride or your zoophilia or your necro fetish. if any of those apply to you please distance yourself from me and get help. other than that i usually block freely; if i dont like you i'll block you. profic and proship can interact but you're on paper thin ice</p>
 <h2>before you interact</h2>
 <img src="https://github.com/user-attachments/assets/eae4e47d-ba64-43e6-a48d-7231ad64065f" width="100">
 <p>my humor is very raunchy, it can get sexual and violent. i also get influenced really easily and just say shit so please take that into consideration. i am also a minor; if you are over 18, please interact with caution </p>
