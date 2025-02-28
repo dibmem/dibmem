@@ -28,6 +28,8 @@
 <img src="https://github.com/user-attachments/assets/eae4e47d-ba64-43e6-a48d-7231ad64065f" width="100">
 <p>my humor is very raunchy, it can get sexual and violent. i also get influenced really easily and just say shit so please take that into consideration. i am also a minor; if you are over 18, please interact with caution </p>
 <h2>well, i'll see you later</h2>
-<img src="https://github.com/user-attachments/assets/7e9d5f75-4fd0-4bc1-b607-d09fb4993892" width="160">
+<img src="https://github.com/user-attachments/assets/6234ed7e-80c4-4020-a2dd-9392d601987e" width="140">
 
-<img src="https://i.picasion.com/gl/92/jG9a.gif" width="763" height="37" border="0">
+
+https://github.com/user-attachments/assets/e4a624bc-27b2-47fe-b75c-3f10e73d9c81
+
