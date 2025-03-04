@@ -1,4 +1,4 @@
-<img src= "https://file.garden/Z4CapTpdDSDFdj6X/Untitled88_20250228171112.png" width="600">
+
 <h1> what's up </h1>
 
 <img src= "https://github.com/user-attachments/assets/eb520dee-a8ac-41db-b36a-223b5e407f1b" width=170>
