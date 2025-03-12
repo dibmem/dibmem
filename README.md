@@ -1,4 +1,5 @@
  ![PNG image](https://github.com/user-attachments/assets/fa099398-a464-47de-bcf2-a444e35a9ee2)
+ <p>ɪᴄᴘ ɢʀᴀᴘʜɪᴄ ʙʏ ᴄʟᴏᴜᴅᴠɪꜱᴜᴀʟꜱᴘᴇᴡ07x ᴏɴ ᴛᴜᴍʙʟʀ </p>
 <h1>THE AMAZING </h1>
 
 <img src= "https://github.com/user-attachments/assets/eb520dee-a8ac-41db-b36a-223b5e407f1b" width=170>
