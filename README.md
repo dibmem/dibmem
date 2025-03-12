@@ -8,7 +8,7 @@
 
 <img src= "https://github.com/user-attachments/assets/c1d7900b-2c1b-4bb5-bc18-9e5235095332" width=150>
 
-<p>you can call me <strong>dib</strong> or <strong>piero</strong> <br> im learning how to code <br> if you have a question feel free to ask me <br> im 12 as of 2025. i'll be turning 13 soon  </p>
+<p>you can call me <strong>dib</strong> or <strong>piero</strong> <br> im learning how to code <br> if you have a question feel free to ask me <br> im 13 as of 2025.   </p>
 <h2>my interests</h2>
 
 ![GIF image](https://github.com/user-attachments/assets/d4b61b59-bc44-47b0-8713-d4d6af19d20f)
