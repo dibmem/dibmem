@@ -8,3 +8,12 @@
 <p align="center"><a href="https://bsky.app/profile/dibmembrane.bsky.social"><img src="https://github.com/user-attachments/assets/235b0553-fe62-452d-bc4b-a66df1acf75c" width="300"></img></a></p>
 
 <p align="center"><a href="https://www.tumblr.com/dibhomestuck?source=share"><img src="https://github.com/user-attachments/assets/c29d9f77-396c-4027-a90b-36ef02a29a60" width="300"></img></a></p>
+
+<p align="center"><img src="https://github.com/user-attachments/assets/b22e2489-bf87-48c3-ba6b-1e9ff6ffdf84" width="400"></img></p>
+
+
+<p align="center"><img src="https://github.com/user-attachments/assets/d324bf2e-d32c-43ce-bc93-44d7d581509c"></img></p>
+
+
+
+<img src="https://github.com/user-attachments/assets/e2b40158-702e-443a-a5bb-62042b6ef362"></img>
